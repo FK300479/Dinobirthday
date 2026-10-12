@@ -1,2 +1,0 @@
-# Dinobirthday
-Happy Birthday Dino
